@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Nishtha Singh  👋
 
 
 - 🔭 I’m currently working on something cool!
